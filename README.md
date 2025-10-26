@@ -24,7 +24,7 @@ check out all my sillies they are absolutely awesome (<a href="https://github.co
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ <img width="906" height="74" alt="image" src="https://github.com/user-attachments/assets/163fcd7e-5000-4edd-886b-f21d4e3d39a0" />
 
 
-feel free to contact me at : https://anglzz.atabook.org/ or https://spacehey.com/broknwngz !
+feel free to contact me on my : <a href="https://anglzz.atabook.org/">atabook</a> or <a href="https://spacehey.com/broknwngz">spacehey</a> !
 
 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ <img width="300" height="45" alt="image" src="https://github.com/user-attachments/assets/807ca9dc-e5e1-4357-bb35-f89f83bbe3dc" />
