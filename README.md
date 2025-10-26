@@ -19,7 +19,7 @@ usually offtab, but don't hesitate 2 whisper me!! i may respond late though so i
 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎  ‎ <img width="1280" height="138" alt="image" src="https://github.com/user-attachments/assets/dd70b7bf-d506-4aa2-aada-b1a55ae2ddc8" />
 
-check out all my sillies they are absolutely awesome @kn1ght0fthew1nd @orangejuyce @R0S1EP0S1ES @Pac3dShadowz
+check out all my sillies they are absolutely awesome (<a href="https://github.com/R0S1EP0S1ES">@R0S1EP0S1ES </a>
 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ <img width="906" height="74" alt="image" src="https://github.com/user-attachments/assets/163fcd7e-5000-4edd-886b-f21d4e3d39a0" />
 
