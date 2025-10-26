@@ -23,7 +23,7 @@ anyone dressing up from helluva boss or hazbin hotel, please for your own sake. 
 
 PLEASE FOR THE LOVE OF ALL THING'S GOOD, Lmk if i'm inting w a problematic figure!!
 
-people in the countryhumans + hetalia fandom, int w extreme caution. that goes for homestuck, sth, pjsk, and forsaken fans too.
+people in the countryhumans + hetalia fandom, int w extreme caution. that goes for homestuck, sth, pjsk fans too /nbr
 
                        if you can't respect my friend's or my own boundaries then you will be blocked
 
