@@ -18,7 +18,7 @@ usually offtab, but don't hesitate 2 whisper me!! i may respond late though so i
 
 don't bother int w me if you cosplay sark or justify his actions, "he's being rewritten" it doesn't change who his original character is.
 
-anyone dressing up from helluva boss or hazbin hotel, please for your own sake. don't fucking interact. i do not agree with vizziepop's opinions and i dislike her works.
+anyone dressing up from helluva boss or hazbin hotel, please for your own sake. dni, i do not agree with vizziepop's opinions and i dislike her works.
 
 
 PLEASE FOR THE LOVE OF ALL THING'S GOOD, Lmk if i'm inting w a problematic figure!!
