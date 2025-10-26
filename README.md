@@ -21,10 +21,7 @@ basic crit, msi stans (not the one's who js listen 2 the music, i mean the msi d
 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎  ‎ <img width="1280" height="138" alt="image" src="https://github.com/user-attachments/assets/dd70b7bf-d506-4aa2-aada-b1a55ae2ddc8" />
 
-
-IWECAU!!
-
-anyone over 20 or under 14 (unless friends)
+check out all my sillies they are absolutely awesome (https://github.com/R0S1EP0S1ES, https://github.com/C00kieOasis, https://github.com/orangejuyce, https://github.com/Pac3dShadowz, https://github.com/silverxpt, https://github.com/metalsboyfriend, https://github.com/lazikoly + neo, mizz, vinn and more probs)
 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ <img width="906" height="74" alt="image" src="https://github.com/user-attachments/assets/163fcd7e-5000-4edd-886b-f21d4e3d39a0" />
 
