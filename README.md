@@ -14,12 +14,12 @@
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  <img width="3464" height="204" alt="image" src="https://github.com/user-attachments/assets/2fedb10d-8651-41e1-b2fd-810482be54e6" />
 
 
-usually offtab, but don't hesitate 2 whisper me!! i may respond late though so i apologize
+usually offtab, but don't hesitate 2 whisper me!! i may respond late though so i apologize! don't hesistate and c*h w me unless im with party (ask!) or i have dni in my name (friends can override this)
 
 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎  ‎ <img width="1280" height="138" alt="image" src="https://github.com/user-attachments/assets/dd70b7bf-d506-4aa2-aada-b1a55ae2ddc8" />
 
-check out all my sillies they are absolutely awesome (<a href="https://github.com/R0S1EP0S1ES">@R0S1EP0S1ES </a>, <a href="https://github.com/Pac3dShadowz">@Pac3dShadowz </a>, <a href="https://github.com/metalsboyfriend">@metalsboyfriend </a>, <a href="https://github.com/silverxpt">@silverxpt </a>, <a href="https://github.com/orangejuyce">@orangejuyce </a>, <a href="https://github.com/kn1ght0fthew1nd">@kn1ght0fthew1nd </a>
+my pt party sillies : <a href="https://github.com/R0S1EP0S1ES">@R0S1EP0S1ES </a>, <a href="https://github.com/Pac3dShadowz">@Pac3dShadowz </a>, <a href="https://github.com/metalsboyfriend">@metalsboyfriend </a>, <a href="https://github.com/silverxpt">@silverxpt </a>, <a href="https://github.com/orangejuyce">@orangejuyce </a>, <a href="https://github.com/kn1ght0fthew1nd">@kn1ght0fthew1nd </a>, <a href="https://github.com/C00kieOasis">@C00kie0asis </a>, and vinn !!
 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ <img width="906" height="74" alt="image" src="https://github.com/user-attachments/assets/163fcd7e-5000-4edd-886b-f21d4e3d39a0" />
 
