@@ -5,11 +5,11 @@
 
 
 
+
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ <img width="583" height="583" alt="image" src="https://github.com/user-attachments/assets/a50a0e47-21a8-4256-a984-c807a706a9ec" />
 
 
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ lunive/rui, minor, ask prns/nameself (ex;"mel/mels/melanself" or such) <img width="60" height="60" alt="image" src="https://github.com/user-attachments/assets/6fe9c060-bb50-4fe6-b7ef-e4748d2a32ec" /> (pls check my <a href="https://rentry.co/mattengardee">rentry </a> to know more about me and my boundaries.)
-
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ lunive/rui, minor, ask prns/nameself (ex;"mel/mels/melanself" or such) <img width="60" height="60" alt="image" src="https://github.com/user-attachments/assets/6fe9c060-bb50-4fe6-b7ef-e4748d2a32ec" /> 
 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  <img width="3464" height="204" alt="image" src="https://github.com/user-attachments/assets/2fedb10d-8651-41e1-b2fd-810482be54e6" />
 
