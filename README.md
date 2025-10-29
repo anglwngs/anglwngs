@@ -18,7 +18,7 @@ usually offtab, but don't hesitate 2 whisper me!! i may respond late though so i
 
 don't bother int w me if you cosplay sark or justify his actions, "he's being rewritten" it doesn't change who his original character is.
 
-anyone dressing up from helluva boss or hazbin hotel, please for your own sake. dni, i do not agree with vizziepop's opinions and i dislike her works.
+anyone dressing up from helluva boss or hazbin hotel, please for your own sake. dni, i do not agree with vizziepop's opinions and i dislike her works. (this does not apply to alter ponies or fandom dni in their name)
 
 
 PLEASE FOR THE LOVE OF ALL THING'S GOOD, Lmk if i'm inting w a problematic figure!!
@@ -31,7 +31,7 @@ people in the countryhumans + hetalia fandom, int w extreme caution. that goes f
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎  ‎ <img width="1280" height="138" alt="image" src="https://github.com/user-attachments/assets/dd70b7bf-d506-4aa2-aada-b1a55ae2ddc8" />
 
 
-if you see any skins/ponies w this <a href="https://github.com/prettypearls"> account</a> linked, that's me
+if you see any skins/ponies with this <a href="https://github.com/prettypearls"> account (@prettypearls)</a> linked, that's little me!
 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ <img width="906" height="74" alt="image" src="https://github.com/user-attachments/assets/163fcd7e-5000-4edd-886b-f21d4e3d39a0" />
 
