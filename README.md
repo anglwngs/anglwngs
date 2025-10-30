@@ -20,7 +20,7 @@ don't bother int w me if you cosplay sark or justify his actions, "he's being re
 
 anyone dressing up from helluva boss or hazbin hotel, please for your own sake. dni, i do not agree with vizziepop's opinions and i dislike her works.
 
-always int w extreme care when any pony with this account (<a href="https://github.com/prettypearls"> @prettypearls </a>) is linked, that is me ageregressing!
+always int w extreme care when any pony with this account (<a href="https://github.com/prettypearls"> @prettypearls </a>) is linked, that is little me!!
 
 PLEASE FOR THE LOVE OF ALL THING'S GOOD, Lmk if i'm inting w a problematic figure!!
 
