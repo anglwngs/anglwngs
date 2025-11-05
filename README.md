@@ -23,7 +23,7 @@
 💤 = asleep
 
 
-don't bother int w me if you cosplay sark or justify his actions, "he's being rewritten" it doesn't change who his original character is.
+don't bother int w me if you cosplay sark or justify his actions (or even justifying anyone cosplaying him) "he's being rewritten" it doesn't change who his original character is.
 
 anyone dressing up from helluva boss or hazbin hotel, please for your own sake. dni, i do not agree with vizziepop's opinions and i dislike her works.
 
