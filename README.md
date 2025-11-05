@@ -14,13 +14,20 @@
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  <img width="3464" height="204" alt="image" src="https://github.com/user-attachments/assets/2fedb10d-8651-41e1-b2fd-810482be54e6" />
 
 # PT info
-usually offtab, but don't hesitate 2 whisper me!! i may respond late though so i apologize! if i'm sitting alone, you can c*h w me unless im with party (ask first!) or i have dni in my name (friends can override this)
+💫 = ontab :3
+
+🌜= offtab or drawing, feel free to w2i
+
+💢 = do not int unless friend.
+
+💤 = asleep
+
 
 don't bother int w me if you cosplay sark or justify his actions, "he's being rewritten" it doesn't change who his original character is.
 
 anyone dressing up from helluva boss or hazbin hotel, please for your own sake. dni, i do not agree with vizziepop's opinions and i dislike her works.
 
-always int w extreme care when any pony with this account (<a href="https://github.com/prettypearls"> @prettypearls </a>) is linked, that is little me!!
+any pony with this account : (<a href="https://github.com/prettypearls"> @prettypearls </a>) linked is little me! as you can see with the lollipop
 
 PLEASE FOR THE LOVE OF ALL THING'S GOOD, Lmk if i'm inting w a problematic figure!!
 
