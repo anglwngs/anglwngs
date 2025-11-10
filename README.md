@@ -14,13 +14,16 @@
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  <img width="3464" height="204" alt="image" src="https://github.com/user-attachments/assets/2fedb10d-8651-41e1-b2fd-810482be54e6" />
 
 # PT info
-💫 = ontab :3
+    💫 = ontab either making a skin or just talking with friends!
+    
+    🌜= drawing or offtab, i do tend to get busy but feel free to w2i! 
+    
+    💢 = iwecau or dniuf. i'll specify what i mean
+    
+    💤 = asleep usually when i have this on. i'm already offline
+   
+    🩸 = dniuid.
 
-🌜= offtab or drawing, feel free to w2i
-
-💢 = do not int unless friend.
-
-💤 = asleep
 
 
 don't bother int w me if you cosplay sark or justify his actions (or even justifying anyone cosplaying him) "he's being rewritten" it doesn't change who his original character is.
