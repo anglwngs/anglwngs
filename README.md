@@ -14,9 +14,9 @@
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  <img width="3464" height="204" alt="image" src="https://github.com/user-attachments/assets/2fedb10d-8651-41e1-b2fd-810482be54e6" />
 
 # PT info
-    💫 = ontab either making a skin or just talking with friends!
+    💫 = ontab
     
-    🌜= drawing or offtab, i do tend to get busy but feel free to w2i! 
+    🌜= drawing or offtab, feel free to w2i unless otherwise
     
     💢 = iwecau or dniuf. i'll specify what i mean
     
@@ -30,7 +30,7 @@ don't bother int w me if you cosplay sark or justify his actions (or even justif
 
 anyone dressing up from helluva boss or hazbin hotel, please for your own sake. dni, i do not agree with vizziepop's opinions and i dislike her works.
 
-any pony with this account : (<a href="https://github.com/prettypearls"> @prettypearls </a>) linked is little me! as you can see with the lollipop
+any pony with this account : (<a href="https://github.com/prettypearls"> @prettypearls </a>) linked is little me! when agereg -> 🍭 will be in my name also
 
 PLEASE FOR THE LOVE OF ALL THING'S GOOD, Lmk if i'm inting w a problematic figure!!
 
