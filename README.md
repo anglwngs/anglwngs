@@ -49,6 +49,6 @@ somth smth, i love all my moots and followers (except for u mars.... /hvyj)
 
 feel free to contact me on my : <a href="https://anglzz.atabook.org/">atabook</a> or <a href="https://spacehey.com/broknwngz">spacehey</a> !
 
-pssp check this out [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31yx7vxxtqow5cmkfipwgxuraiba&cover_image=true&theme=apple&show_offline=false&background_color=121212&interchange=false&profanity=false&mode=light)](https://spotify-github-profile.kittinanx.com/api/view?uid=31yx7vxxtqow5cmkfipwgxuraiba&redirect=true)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31yx7vxxtqow5cmkfipwgxuraiba&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=ff70a9&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31yx7vxxtqow5cmkfipwgxuraiba&redirect=true)
 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ <img width="300" height="45" alt="image" src="https://github.com/user-attachments/assets/807ca9dc-e5e1-4357-bb35-f89f83bbe3dc" />
