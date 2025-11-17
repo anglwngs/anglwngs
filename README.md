@@ -30,7 +30,7 @@ don't bother int w me if you cosplay sark or justify his actions (or even justif
 
 anyone dressing up from helluva boss or hazbin hotel, please for your own sake. dni, i do not agree with vizziepop's opinions and i dislike her works.
 
-any pony with this account : (<a href="https://github.com/prettypearls"> @prettypearls </a>) linked is little me! when agereg -> 🍭 will be in my name also
+any pony with this account : (<a href="https://github.com/prettypearls"> @prettypearls </a>) linked is little me!
 
 PLEASE FOR THE LOVE OF ALL THING'S GOOD, Lmk if i'm inting w a problematic figure!!
 
