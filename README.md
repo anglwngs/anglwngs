@@ -1,8 +1,10 @@
-<p align="center"> $\color{#D5C8C5}{\textsf{𐔌   .  ⋮ all links  .ᐟ  ֹ   ₊ ꒱ ➜}}$<a href="https://anglwngs.atabook.org/"><img src="https://file.garden/aPLawLBv-XUF9Rxm/direct"></a> 
+<p align="center">$\color{#D5C8C5}{\textsf{𐔌   .  ⋮ all links  .ᐟ  ֹ   ₊ ꒱ ➜}}$<a href="https://anglwngs.atabook.org/"><img src="https://file.garden/aPLawLBv-XUF9Rxm/direct"></a> 
 
 
 
-$\color{#D5C8C5}{\textsf{how many people have viewed my profile <3}}$ ![](https://komarev.com/ghpvc/?username=anglwngs&style=plastic&label=Courtroom+Gallery&color=D5C8C5&abbreviated=true)
+<p align="center">$\color{#D5C8C5}{\textsf{how many people have viewed my profile <3}}$ 
+
+![](https://komarev.com/ghpvc/?username=anglwngs&style=plastic&label=Courtroom+Gallery&color=D5C8C5&abbreviated=true)
 
 $\color{#D5C8C5}{\textsf{placeholder info blah blah}}$
 
