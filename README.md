@@ -8,7 +8,7 @@
        <td>
          <br>
          ${\textsf{\color{#D5C8C5}Important Information!}}$ 
-<p align="center"> <kbd>$\color{#D5C8C5}{\textsf{Hello!!}}$<br> <br>$\color{#D5C8C5}{\textsf{Rui or Lunive, Please ask my pronouns or refer to me by my name. i'm also a minor so -14 and +21 please iwecau}}$<br><br>$\color{#D5C8C5}{\textsf{whispers are always apppreciated, though i might be late at reading them. unless i have the following in my name :}}$<br>
+<p align="center"> <kbd>$\color{#D5C8C5}{\textsf{Hello!!}}$<br> <br>$\color{#D5C8C5}{\textsf{Rui or Lunive, Please ask my pronouns or refer to me by my name. i'm also a minor so -14 and +21 please iwecau unless we are friends <3}}$<br><br>$\color{#D5C8C5}{\textsf{whispers are always apppreciated, though i might be late at reading them. unless i have the following in my name :}}$<br>
 <br><br>$\color{#D5C8C5}{\textsf{🩸 = dniuid, 💢 = iwc/dniuf, or 💤 = asleep}}$<br>
 <br><br>$\color{#D5C8C5}{\textsf{other than that, feel free to interact! though again, i have very slow/no responses most of the time. i apologize for this inconvience}}$<br>
 
