@@ -8,9 +8,11 @@
        <td>
          <br>
          ${\textsf{\color{#f2e1dc}Important Information!}}$ 
-<p align="center"> <kbd>$\color{#e3d2cf}{\textsf{Hello!!}}$<br> <br>$\color{#D5C8C5}{\textsf{Please ask my pronouns or refer to me by my name, thank you! i'm also a minor so -14 and +21 please iwecau unless we are friends}}$<br><br>$\color{#D5C8C5}{\textsf{whispers are always apppreciated, though i might be late at reading them. unless i have the following in my name :}}$<br>
+<p align="center"> <kbd>$\color{#e3d2cf}{\textsf{Hello!!}}$<br> <br>$\color{#D5C8C5}{\textsf{Please ask my pronouns or refer to me by my name, thank you! i'm also a minor so -14 and +21 please iwecau unless we are friends}}$<br><br>$\color{#D5C8C5}{\textsf{whispers are always apppreciated (i might be late at reading them) unless i have the following in my name :}}$<br>
 <br><br>$\color{#d1bdb8}{\textsf{🩸 = dniuid, 💢 = iwc/dniuf, 🍭 = agereg, or 💤 = asleep}}$<br>
 <br><br>$\color{#c7b5b1}{\textsf{other than that, feel free to interact! though again, i have very slow/no responses most of the time. i apologize for this inconvience ૮₍´˶• . • ⑅ ₎ა}}$<br>
+<br><br>$\color{#b39d98}{\textsf{other symbols include :}}$<br>
+<br><br>$\color{#a18882}{\textsf{💫 = ontab, 🌜 = offtab, and 🎄 = holiday occasions.}}$<br>
 
 <div align="center">
 <table border="3">
