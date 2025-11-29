@@ -20,6 +20,4 @@
 <p align="Center"> <kbd><img src="https://komarev.com/ghpvc/?username=anglwngs&style=plastic&label=Courtroom+Gallery&color=e3d2cf&abbreviated=true">
 <p align="center">$\color{#f2e1dc}{\textsf{↪ How many people have viewed this account}}$
      <p align="Center"><kbd> $\color{#e3d2cf}{\textsf{thank you guys so much for 100+ views and 30 followers, it means alot to me 𖹭}}$<br>
-          <p align="Center"><kbd> $\color{#D5C8C5}{\textsf{while you're here, check out what i'm listening to!}}$<br>
-               <p align="Center"> <kbd><img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31yx7vxxtqow5cmkfipwgxuraiba&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=ff0000&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31yx7vxxtqow5cmkfipwgxuraiba&redirect=true">
  </p>
