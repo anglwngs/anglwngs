@@ -2,11 +2,25 @@
 "></a> 
 
 
+<div align="center">
+<table border="3">
+     <tr>
+       <td>
+         <br>
+         ${\textsf{\color{#D5C8C5}Important Information!}}$ 
+<p align="center"> <kbd>$\color{#D5C8C5}{\textsf{Hello!!}}$<br> <br>$\color{#D5C8C5}{\textsf{I am Rui or Lunive, Please ask my pronouns or refer to me by my name}}$<br><br>$\color{#D5C8C5}{\textsf{whispers are always apppreciated, though i might be late at reading them. unless i have the following in my name :}}$<br>
+<br><br>$\color{#D5C8C5}{\textsf{🩸 = dniuid, 💢 = iwecau/dniuf, or 💤 = asleep}}$<br>
+<br><br>$\color{#D5C8C5}{\textsf{other than that, feel free to interact! though again, i have very slow/no responses most of the time. i apologize for this inconvience}}$<br>
 
-<p align="center">$\color{#D5C8C5}{\textsf{how many people have viewed my profile }}$ 
+<p align="center">$\color{#D5C8C5}{\textsf{}}$ 
 
-![](https://komarev.com/ghpvc/?username=anglwngs&style=plastic&label=Courtroom+Gallery&color=D5C8C5&abbreviated=true)
+<div aligh="center">
+<table border="3">
+<tr>
+<td>
+<br>
+  
+ <kbd> ![counter](https://komarev.com/ghpvc/?username=anglwngs&style=plastic&label=Courtroom+Gallery&color=D5C8C5&abbreviated=true)
 
-$\color{#D5C8C5}{\textsf{wip..}}$
-
-<p align="center">$\color{#D5C8C5}{\textsf{ (not regularly checked/updated but i wanted to thank everyone for 30 followers <3) }}$
+<kbd>$\color{#D5C8C5}{\textsf{More information is found in my rentry.}}$ 
+<p align="center"> <kbd>$\color{#D5C8C5}{\textsf{ (not regularly checked/updated but i wanted to thank everyone for 30 followers <3) }}$
