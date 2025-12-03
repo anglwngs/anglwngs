@@ -21,5 +21,5 @@
                <br>  
 <p align="Center"> <kbd><img src="https://komarev.com/ghpvc/?username=anglwngs&style=plastic&label=Courtroom+Gallery&color=e3d2cf&abbreviated=true">
 <p align="center">$\color{#f2e1dc}{\textsf{↪ How many people have viewed this account}}$
-     <p align="Center"><kbd> $\color{#e3d2cf}{\textsf{thank you guys so much for 100+ views and 30 followers, it means alot to me 𖹭}}$<br>
+     <p align="Center"><kbd> $\color{#e3d2cf}{\textsf{thank you guys so much for 300 views and (almost) 40 followers, it means alot to me 𖹭}}$<br>
  </p>
