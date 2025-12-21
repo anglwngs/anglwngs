@@ -21,5 +21,5 @@
                <br>  
 <p align="Center"> <kbd><img src="https://komarev.com/ghpvc/?username=anglwngs&style=plastic&label=Courtroom+Gallery&color=e3d2cf&abbreviated=true">
 <p align="center">$\color{#f2e1dc}{\textsf{↪ How many people have viewed this account}}$
-     <p align="Center"><kbd> $\color{#e3d2cf}{\textsf{THANK YOU GUYS FOR OVER 600 VIEWS? I would have never thought i'd get that many views, ALSO!! ty everyone for 40 follows!!}}$<br>
+     <p align="Center"><kbd> $\color{#e3d2cf}{\textsf{thank you sm guys for 1k views and +40 follows!! I love you all very much!!}}$<br>
  </p>
