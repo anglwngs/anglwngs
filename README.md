@@ -1,5 +1,4 @@
-![](https://art.pixilart.com/057c8a92b069f5d.gif)
-ok.
+![mettaton](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTndQ7WZGF2vzg5QaVzOx32LYBeVnmtoSseyQ&s)
      <tr>
           <td>
                <br>  
