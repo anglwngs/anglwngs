@@ -2,8 +2,8 @@
 
    󠀿󠀿󠀿󠀿️️ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://www.picmix.com/pic/download?picId=11847964&key=9e3db)
 
-<p align="center">˚　　　　✦　　　.　　. 　 ˚　.　　　　　 . ✦　　　 　˚　　　　 . ★⋆.
-　　　.   　　˚　　 　　*　　 　　✦　　　.　　.　　　✦　˚ 　　　　 ˚　.˚　　　　　　.　　. 　 ˚　.　　　　 　　 　　　　 ✦
+<p align="center">$\color{#fc0fc0}{\textsf{˚　　　　✦　　　.　　. 　 ˚　.　　　　　 . ✦　　　 　˚　　　　 . ★⋆.
+　　　.   　　˚　　 　　*　　 　　✦　　　.　　.　　　✦　˚ 　　　　 ˚　.˚　　　　　　.　　. 　 ˚　.　　　　 　　 　　　　 ✦}}$
 
 
    <div align="center">
@@ -19,19 +19,19 @@
 <a href="https://rentry.co/mattengardee"><img src="https://files.catbox.moe/knpda7.gif"></a> 
 🠈 read please
 
-$\color{#fc0fc0}{\textsf{*"What is your name?"*}}$
+*"What is your name?"*
 
 although i am most referred to as lunive, i go by rui too. either way, call me what you see fit.
 
-$\color{#fc0fc0}{\textsf{*"Are you ok with doubles of your yume/kin?"*}}$
+*"Are you ok with doubles of your yume/kin?"*
 
 idc for doubles just don't be an ass to me and i dont have to kill you.
 
-$\color{#fc0fc0}{\textsf{*"Who is prettypearls?"*}}$
+*"Who is prettypearls?"*
 
 <a href="https://github.com/prettypearls">@prettypearls</a> is little me, please  always interact with extreme caution when i have any outfit on that is linked to the account.
 
-$\color{#fc0fc0}{\textsf{*"Where can i find you?"*}}$
+*"Where can i find you?"*
 
 you will always find me somewhere in the sth, ut;dr, or near the dgr areas. i am usually with my party most times
 
