@@ -29,9 +29,9 @@ hi im lunive/rui, call me any but lunive is most preferred! mettaton and spamton
 
 </p>
 </details>
-   <div align="center">
+   <div align="right">
       <br>
-   <div align="center">
+   <div align="right">
 <details>
 <summary></summary>
    <br>
