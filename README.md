@@ -1,6 +1,6 @@
 <p align="center"> <ins><b><em><tr><td><br>LUNIVE'S DIARY</em></b></ins>
 
-   󠀿󠀿󠀿󠀿️️ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://www.picmix.com/pic/download?picId=11847964&key=9e3db)
+   󠀿󠀿󠀿󠀿️️ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ\![](https://www.picmix.com/pic/download?picId=11847964&key=9e3db)
 
 
 <p align="center">˚　　　　✦　　　.　　. 　 ˚　.　　　　　 . ✦　　　 　˚　　　　 . ★⋆.
