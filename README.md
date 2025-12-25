@@ -1,4 +1,5 @@
-pink is my favorite color. ![](https://www.picmix.com/pic/download?picId=11847964&key=9e3db)
+![](https://www.picmix.com/pic/download?picId=11847964&key=9e3db)
+i am quite fond of that man, mettaton.
 
 
 
