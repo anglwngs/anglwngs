@@ -4,7 +4,7 @@
 
 <p align="center">$\color{#fc0fc0}{\textsf{˚　　　　✦　　　.　　. 　 ˚　.　　　　　 . ✦　　　 　˚　　　　 . ★⋆.}}$
    
-$\color{#fc0fc0}{\textsf{　　　.   　　˚　　 　　*　　 　　✦　　　.　　.　　　✦　˚ 　　　　 ˚　.˚　　　　　　.　　. 　 ˚　.　　　　 　　 　　　　 ✦}}$
+<p align="center">$\color{#fc0fc0}{\textsf{　　　.   　　˚　　 　　*　　 　　✦　　　.　　.　　　✦　˚ 　　　　 ˚　.˚　　　　　　.　　. 　 ˚　.　　　　 　　 　　　　 ✦}}$
 
 
    <div align="center">
