@@ -1,5 +1,5 @@
-![mettaton]([https://media.tenor.com/rpXhTDOFbzIAAAAj/undertale-mettaton.gif](https://img1.picmix.com/output/pic/normal/1/6/7/2/11112761_9d46d.gif)) 
-normal abt mettaton (LIE)
+![](https://www.picmix.com/pic/download?picId=11847964&key=9e3db)
+
 
 
    <div align="center">
