@@ -20,15 +20,19 @@
 🠈 read please
 
 *"What is your name?"*
+
 although i am most referred to as lunive, i go by rui too. either way, call me what you see fit.
 
 *"Are you ok with doubles of your yume/kin?"*
+
 idc for doubles just don't be an ass to me and i dont have to kill you.
 
 *"Who is prettypearls?"*
+
 <a href="https://github.com/prettypearls">@prettypearls</a> is little me, please  always interact with extreme caution when i have any outfit on that is linked to the account.
 
 *"Where can i find you?"*
+
 you will always find me somewhere in the sth, ut;dr, or near the dgr areas. i am usually with my party most times
 
 (another thing i forgot to add, although i love hearing drama and such, i do not like being in it. so don't bring me into any of yours! you will be blocked.)
